@@ -12,4 +12,7 @@ Ich war bei meinem vorherigen Job 16 Jahre ein IT-Systems-Engineer. Meinen Chara
 Wie mein Vater zu mir beim Angeln früher bereits sagte:
 
 >Nur der frühe Vogel fängt den Wurm.
- 
+
+
+<img src="https://de.123rf.com/photo_58232334_lächeln-brot-scheibe-karikatur-maskottchen-buchstaben-mit-dumbbells-ausarbeitet.html"/>
+
