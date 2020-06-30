@@ -8,4 +8,8 @@ Ich war bei meinem vorherigen Job 16 Jahre ein IT-Systems-Engineer. Meinen Chara
 * ruhig
 * besonnen
 * zuhörend
+
+Wie mein Vater zu mir beim Angeln früher bereits sagte:
+
+>Nur der frühe Vogel fängt den Wurm.
  
